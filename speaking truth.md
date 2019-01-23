@@ -1,4 +1,4 @@
-        speaking truth
+        speak the truth
         don't bear false witness
         yes is yes, no is no
         because when you do that you are so strong
