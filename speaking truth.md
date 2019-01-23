@@ -1,7 +1,7 @@
         speak the truth
         don't bear false witness
         yes is yes and no is no
-        when you do that you're so strong
+        when you do that you get so strong
         when these shame squads come, and they say
         what if Owen's friend tricked him?
         if you're not lying, fuck it
