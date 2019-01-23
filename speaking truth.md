@@ -1,5 +1,5 @@
         speaking truth
-        don't give false witness
+        don't bear false witness
         yes is yes, no is no
         because when you do that you are so strong
         because when these shame squads come and they say
