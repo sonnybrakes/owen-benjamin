@@ -1,6 +1,6 @@
         speak the truth
         don't bear false witness
-        yes is yes, no is no
+        yes is yes and no is no
         because when you do that you are so strong
         when these shame squads come, and they say
         what if Owen's friend tricked him?
